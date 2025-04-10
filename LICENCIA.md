@@ -1,0 +1,1 @@
+Dialéctica Integrada© 2025 Osiris Adán González Rodríguez. Todos los derechos reservados. Uso permitido con atribución obligatoria.

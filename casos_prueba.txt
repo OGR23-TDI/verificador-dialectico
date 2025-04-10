@@ -1,0 +1,1 @@
+Caso de prueba: Capacidad combinada Ali y John. Entrada base: 120, relación 1/8, clases John: 2.
